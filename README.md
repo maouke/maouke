@@ -1,7 +1,8 @@
 
-![cute-loverlyu](https://github.com/user-attachments/assets/92347392-4900-44cc-b9f8-dd2518709388) 
+![cute-loverlyu](https://github.com/user-attachments/assets/92347392-4900-44cc-b9f8-dd2518709388) 𝓂𝓁𝓂  ⠀⠀ ⠀ ⠀♡⠀ ⠀⠀
+   𝒶𝓃𝓎 𝒻𝓇𝑒𝒶𝓀 𝒾𝓃𝓉, 𝓁𝑜𝓋𝑒 𝓎𝒶𝓁𝓁 (𝑒𝓍𝓅𝑒𝒸𝓉 𝓉𝒸𝑜𝒶𝒶𝓁 𝒶𝓃𝒹 𝑜𝓉𝒽𝑒𝓇 𝓌𝑒𝒾𝓇𝒹 𝒻𝒶𝓃𝒹𝑜𝓂𝓈(      ![pills-kawaii](https://github.com/user-attachments/assets/e586885c-585d-4503-9e6b-974e51462a75)
 
-  ⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀![pixel-loverlyu](https://github.com/user-attachments/assets/451d76ae-2df7-4cba-8a40-ed2355f87049)
+  ⠀⠀ ⠀⠀⠀𝓅𝓁𝑒𝒶𝓈𝑒 𝒹𝑜𝓃'𝓉 𝒷𝑒 𝒻𝓁𝒾𝓇𝓉𝓎 𝒶𝓇𝑜𝓊𝓃𝒹 𝓂𝑒, 𝒾 𝑔𝑒𝓉 𝓊𝓃𝒸𝑜𝓂𝒻𝑜𝓇𝓉𝒶𝒷𝓁𝑒!![pixel-loverlyu](https://github.com/user-attachments/assets/451d76ae-2df7-4cba-8a40-ed2355f87049)
 
- ![tsugino-haru-haru-tsugino](https://github.com/user-attachments/assets/5763957d-3040-4806-bf9a-0c8c61ae174b)
+ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀ ![tsugino-haru-haru-tsugino](https://github.com/user-attachments/assets/5763957d-3040-4806-bf9a-0c8c61ae174b)
 
