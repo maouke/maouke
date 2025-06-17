@@ -1,4 +1,4 @@
- ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀![hetalia-hetalia-the-musical](https://github.com/user-attachments/assets/730fb4ef-e9aa-4320-b070-b310a1cf0a79)
+<p align="center"> <img src="https://i.postimg.cc/zv51p58F/41debc0b90bc3887566df55529d43c46.jpg" width=400> </p>
 
  
 
